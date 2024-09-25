@@ -16,6 +16,6 @@ Following the next year aka grade 10 I was able to overcome my anxiety and was a
 
 ### How the pandemic changed me
 
-This pandemic changed me for the better. I know to many this was a devestating event but to me personally I was glad it happened. I learned so much about myself during the pandemic. I learned my weaknesses, strenghts, and my potential. 
+This pandemic changed me for the better. I know to many this was a devestating event but to me personally I was glad it happened. I learned so much about myself during the pandemic. I learned my weaknesses, strenghts, and my potential. I was also changed as my confidence on myself has greatly incrased compared to before the pandemic this is why I didn't have any pictures of myself before the pandemic. 
 
 
